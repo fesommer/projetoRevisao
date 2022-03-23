@@ -1,1 +1,1 @@
-Analyce Ferreira - Sinop/MT
+Analyce Ferreira  -  Sinop/MT
