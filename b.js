@@ -1,1 +1,0 @@
-Analyce Ferreira  -  Sinop/MT
